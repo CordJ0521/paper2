@@ -1,0 +1,5 @@
+"In Bugliosi's defense, Manson did preach Helter Skelter to his followers. But the extent that he actually believed in it, the extent to which it was a motivating factor behind the crimes -- I think all that was made up by Bugliosi"
+
+Another source noted that Bugliosi's colleagues believed that the Helter Skelter theory was bs. This quote along with the quote from the other source together prove that Bugliosi's Helter Skelter theory was thought by most in the DA's office to be a sub-par motive, which begs the question of why would he push this theory so hard? It may be a sign of [[Bugliosi's Corruption]].
+
+O’Neill, Tom, and Anonymous (“Jacobin”). “The Manson Murders May Have Something to Do With CIA Mind-Control Experiments.” _Jacobin_, 3 May 2023, jacobin.com/2023/05/the-manson-murders-may-have-something-to-do-with-cia-mind-control-experiments. Accessed 3 Nov. 2023.
