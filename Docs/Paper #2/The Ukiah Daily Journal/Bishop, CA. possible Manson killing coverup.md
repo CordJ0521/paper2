@@ -1,6 +1,0 @@
-
-"Why police in Bishop, CA would hide evidence, produce misleading reports and conclude the killing of young Fillipo Tenerelli was a suicide is deeply disturbing; the crime was clearly the work of Manson’s clan.  Why the coverup continues half a century later makes the puzzle even creepier."
-
-This stands out a lot, unlike the other coverup evidence it's totally unclear who would cover this up as a suicide considering none of the other killings were obviously purposefully covered up. It's posssible that Smith or Bugliosi could have covered this up for some reason, but it's not likely so this is just rly odd. I suppose this could be referenced (not quoted) in the conclusion as a question left unanswered. Or, I could reference the dozen or so unsolved cases that were likely Manson Family killings too rather than just this specific case.
-
-Hine, Tom. “Assignment: Ukiah – Charlie Manson and, Inevitably, Ukiah.” _The Ukiah Daily Journal_, The Ukiah Daily Journal, 21 Nov. 2021, www.ukiahdailyjournal.com/2021/11/21/charlie-manson-and-inevitably-ukiah/. Accessed 3 Nov. 2023.
